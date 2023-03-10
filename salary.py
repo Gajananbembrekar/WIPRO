@@ -1,0 +1,1 @@
+salary is 12LPA
